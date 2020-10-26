@@ -1,2 +1,2 @@
 hello this is a random repo!!
-hari is a good 
+hari is a good man
